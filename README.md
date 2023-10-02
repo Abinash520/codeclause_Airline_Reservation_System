@@ -84,4 +84,4 @@ We welcome contributions to enhance the functionality and usability of the Airli
 
 ## Contact 
 
-For any Query or suggestion please contact me on: abhay73abhay@gmail.com
+For any Query or suggestion please contact me on: mohantyabinash7574@gmail.com 
